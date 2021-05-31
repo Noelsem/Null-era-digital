@@ -1,2 +1,2 @@
 # Null-era-digital
-Hanya sebagai berkembang 
+Hanya pengen tahu
